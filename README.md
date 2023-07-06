@@ -1,1 +1,1 @@
-<img src="https://media.discordapp.net/attachments/1104507940221767794/1121653589320941619/1672147695066.gif" width="60" >
+<img src="https://media.discordapp.net/attachments/1104507940221767794/1121653589320941619/1672147695066.gif" width="75"> <a href="https://tamanotchi.world/4844c"><img src="https://tamanotchi.world/i2/4844" alt="It's tamaNOTchi! Click to feed!"></a>
